@@ -42,4 +42,4 @@ Making Spanish classical guitars, building arcade machines, and hand bookbinding
 
 ### 📫 Contact
 
-[Email](mailto:pol_rubiano@yahoo.es) · [eyesense.es](https://eyesense.es)
+[Email](mailto:pol_rubiano@yahoo.es) · [LinkedIn](www.linkedin.com/in/diego-hernandez-rubiano) · [eyesense.es](https://eyesense.es)
